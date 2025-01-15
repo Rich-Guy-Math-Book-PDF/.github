@@ -63,7 +63,7 @@ Start your journey toward financial freedom today by downloading the **Rich Guy 
 
 **Download the Rich Guy Math Book PDF** and learn actionable financial strategies. Discover budgeting tips, investment insights, and more in this comprehensive guide.
 
-**Additional Information**: [Check here](#).
+**Additional Information**: [Check here](https://playghar.com/rich-guy-math-book-pdf-unlock-the-secrets-to-financial-freedom/).
 ```
 
 You can use this markdown content directly on GitHub or any platform that supports markdown formatting.
